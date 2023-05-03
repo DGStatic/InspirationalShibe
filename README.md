@@ -1,1 +1,1 @@
-# PathOfLoot
+# Inspirational Shibe
